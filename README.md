@@ -1,1 +1,1 @@
-Site: https://ekanthan-shanmugapriya.in
+Site: https://invitation.ekanthan-shanmugapriya.in
